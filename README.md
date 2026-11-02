@@ -1,1 +1,1 @@
-# ExistentialThinker.github.io
+# Henry Paproski
